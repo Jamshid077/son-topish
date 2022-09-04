@@ -1,1 +1,1 @@
-# data-scince-va-suniy-intlekt
+# Son topish oyini
